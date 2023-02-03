@@ -8,7 +8,7 @@ author:
 mathjax: true
 ---
 
-（1）正常圣杯战争，现代日本背景，archer穆二x 人为狂化的berserker君十一alter
+（1）正常圣杯战争，现代日本背景，archer穆二x 人为狂化的berserker君十一alter 
 
 （2）原创女性御主，不是咕哒。
 
